@@ -25,3 +25,14 @@ No, It isn't. Please have a seat.
 May I join you?
 Mind if I join you?
 Do you mind if I join you?
+
+So, How do you know Katherine?
+
+---
+What a nice view huh?
+Yes, it is. I like this place a lot.
+By the way, I'm phillipe. Pleased to meet you.
+I'm Michelle. Nice to meet you.
+So How do you know Katherine?
+Oh, we go way back. Katherine and I went to high school together.
+---
