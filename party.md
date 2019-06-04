@@ -36,3 +36,11 @@ I'm Michelle. Nice to meet you.
 So How do you know Katherine?
 Oh, we go way back. Katherine and I went to high school together.
 ---
+
+Do you know who sings this song?
+Could I get you something to drink?
+
+Did you come here alone?
+
+Don't I know you from somewhere?
+Haven't I seen you before?
